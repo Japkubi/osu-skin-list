@@ -1,6 +1,6 @@
 # osu-skin-list
 ## skins :thumbsup:
-### im making this first time so it might suck ill fix it eventually
+### im making this first time so it might suck ill fix it eventually (some may not be here, then just ask)
 
 # [Jabkubi](https://mega.nz/file/LDwQmYST#fPRWk4xaopYzT5GA8OI3zx4-8ZZTk2ygbOpkVEJYZGY)
 ![](https://imgur.com/1BGz5T1.png)
