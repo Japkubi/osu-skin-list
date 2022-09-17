@@ -5,9 +5,11 @@
 # [Jabkubi](https://mega.nz/file/LDwQmYST#fPRWk4xaopYzT5GA8OI3zx4-8ZZTk2ygbOpkVEJYZGY)
 ![](https://imgur.com/1BGz5T1.png)
 
+# [Jabkubi - fixed](https://mega.nz/file/CLxBlaxK#jYtmvuEvJHI7_RJZmHynWGaqet8bX4XGtDq26RAPi28)
+![](https://imgur.com/AVx6EKE.png)
+
 # [Jabkubi - kablaze](https://mega.nz/file/TPhlSLLT#tzIYQ3eiL4rMRzWzbuILR6xEsqpnYQHcRq_wp9WzMvA)
 ![](https://imgur.com/AePo5CE.png)
-
 
 # [Jabkubi - fancy man](https://mega.nz/file/6SZFQZ7b#1FFYVmqlpvixOfZCIh2o7ISEKLb9Su4XBXo4XhzveKk)
 ![](https://imgur.com/1HAnUS8.png)
